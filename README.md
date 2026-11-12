@@ -1,1 +1,1 @@
-# T-rvete-AI-skills
+# Tervete-AI-skills
